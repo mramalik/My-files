@@ -1,1 +1,1 @@
-**Not all, some of my assignement are in here🤪** 
+**Not all, some of my assignements are in here🤪** 
